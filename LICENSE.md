@@ -1,4 +1,4 @@
-
+cstm Scripts for brainrot evolution - auto-farm and spd is your go-to resource for brainrot evolution domination. Featuring auto-farm and spd, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
